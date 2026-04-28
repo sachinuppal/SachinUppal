@@ -4,7 +4,7 @@
 >
 > From $100M+ in marketing spend to AI voice agents and open-source platforms — I build things that grow startups, scale empires, and automate everything in between.
 >
-> 🌐 [sachinuppal.com](https://www.sachinuppal.com) &nbsp;|&nbsp; 📧 sachin@vriksha.ai &nbsp;|&nbsp; 💼 [LinkedIn](https://linkedin.com/in/sachinuppal)
+> 🌐 [sachinuppal.com](https://www.sachinuppal.com) &nbsp;|&nbsp; 📧 reachme@sachinuppal.com &nbsp;|&nbsp; 💼 [LinkedIn](https://linkedin.com/in/sachinuppal)
 >
 > ---
 >
